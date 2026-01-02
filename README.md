@@ -1,9 +1,6 @@
-<div align="center">
 [![1000002704-fotor-2025122262839.png](https://i.postimg.cc/C5Cb7tss/1000002704-fotor-2025122262839.png)](https://postimg.cc/dZ17t5Xh)
-</div>
 
 ## pt boundaries + info
-
 ✰  if nothing on my dni list applies to you ( said list can be found [here](https://burnt-letter.carrd.co/) ), you're welcome to interact with me whenever you'd like. 
 
 ✰  i'm perfectly fine with cuddles, having others hide behind me, n’ receiving smooches, nuzzles & boops — even if we've never met before.  i'm pretty comfortable with physical affection, so you don't have to hold back with me.
