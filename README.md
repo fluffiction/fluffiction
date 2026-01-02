@@ -3,11 +3,11 @@
 ## pt boundaries + info
 ✰  if nothing on my dni list applies to you ( said list can be found [here](https://burnt-letter.carrd.co/) ), you're welcome to interact with me whenever you'd like. 
 
-✰  i'm perfectly fine with cuddles, having others hide behind me, n’ receiving smooches, nuzzles & boops — even if we've never met before.  i'm pretty comfortable with physical affection, so you don't have to hold back with me.
+✰  i'm perfectly fine with cuddles, having others hide behind me, n’ receiving smooches, nuzzles & boops — even if we've never met before.  i'm pretty comfortable with physical affection, so you don't have to hold back with me.  just,, don't expect me to reciprocate much. i'm too prideful for that.
 
 ✰  you can take *some* inspiration from my skins, but you do <b>NOT</b> have my permission to copy my skins/sonas and try to pass them off as your very own creations. 
 
-✰  i write my name as ‘frenchesco’ instead of ‘franchesco’ bc i think the lowercase ‘a’ is HIDEOUS. either way, just call me frisco.
+✰  i write my name as ‘frenchesco’ instead of ‘franchesco’ bc i think the lowercase ‘a’ is UGLY. either way, just call me frisco.
 
 ✰  ponytown is like home to me and i tend to drop in after a long day. you'll usually find me raving at an event or just resting afk by myself (as i sometimes leave the game on for background noise while i study). 
 
