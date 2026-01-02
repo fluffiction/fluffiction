@@ -1,4 +1,7 @@
-[![tumblr-8fbacec881289c88358e0f1e25b1a859-636f761c-2048.jpg](https://i.postimg.cc/vHBhYFn5/tumblr-8fbacec881289c88358e0f1e25b1a859-636f761c-2048.jpg)](https://postimg.cc/pywzCSqd)
+<div align="center">
+[![1000002704-fotor-2025122262839.png](https://i.postimg.cc/C5Cb7tss/1000002704-fotor-2025122262839.png)](https://postimg.cc/dZ17t5Xh)
+</div>
+
 ## pt boundaries + info
 
 ✰  if nothing on my dni list applies to you ( said list can be found [here](https://burnt-letter.carrd.co/) ), you're welcome to interact with me whenever you'd like. 
