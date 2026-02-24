@@ -1,16 +1,15 @@
-## Hi there 👋
+## pt boundaries + info !
 
-<!--
-**fluffiction/fluffiction** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+⁠♡‎‎ ‎ if nothing on my dni list applies to you ( said list can be found [here](https://burnt-letter.carrd.co) ), congrats! we're already off to a good start.
 
-Here are some ideas to get you started:
+⁠♡‎‎ ‎ i'm perfectly fine with having others hide behind me, kisses, nuzzles & boops — even if we've never met before. physical affection is a **requirement** for me, so don't hold back on me.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+⁠♡‎‎ ‎ i haven't roleplayed in a hot minute, but i guess you can ask me to rp with you if you really want that.
+
+⁠♡ ‎ if we're going to be friends at some point, i'm gonna’ need you to reciprocate my efforts; like sit with me for a bit or at least send a whisper sometime — because if i'm the one who always has to initiate interactions/approach you first, i'll ultimately piss off after a while, presuming i'm not wanted. ‎ ‎ don't just feel obligated to tolerate me; don't make me waste my fuckin' feelings on you; and definitely don't wait to toughen up n’ say something to my face, bc the only thing that matters to me is plain old honesty.
+
+⁠♡ ‎ no copying my skins/sonas and trying to pass them off as your very own creations. otherwise, i'll be seeing you in court.
+
+⁠♡ ‎ ponytown is like home to me and i tend to drop in after a long day. you'll either find me raving at an event server or just resting afk by myself.  the point is:  if i'm online, i'm up for interacting, so sit down with me before i come over there myself and start throwing hands.
+
+⁠♡ ‎ if you ever spot me at an event server, you should totally come dance with me! i really love dancing in sync with others & i think it's a pretty fun way to slowly get over social anxiety :D
