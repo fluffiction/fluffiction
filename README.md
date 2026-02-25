@@ -6,8 +6,6 @@
 
 ⁠♡‎‎ ‎ i haven't roleplayed in a hot minute, but i guess you can ask me to rp with you if you really want that.
 
-⁠♡ ‎ if we're going to be friends at some point, i'm gonna’ need you to reciprocate my efforts; like sit with me for a bit or at least send a whisper sometime — because if i'm the one who always has to initiate interactions/approach you first, i'll ultimately piss off after a while, presuming i'm not wanted. ‎ ‎ don't just feel obligated to tolerate me; don't make me waste my fuckin' feelings on you; and definitely don't wait to toughen up n’ say something to my face, bc the only thing that matters to me is plain old honesty.
-
 ⁠♡ ‎ no copying my skins/sonas and trying to pass them off as your very own creations. otherwise, i'll be seeing you in court.
 
 ⁠♡ ‎ ponytown is like home to me and i tend to drop in after a long day. you'll either find me raving at an event server or just resting afk by myself.  the point is:  if i'm online, i'm up for interacting, so sit down with me before i come over there myself and start throwing hands.
